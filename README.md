@@ -4,4 +4,7 @@
 <br/>Aqui estuvo Antonio
 <br/>Jennifer
 <br/>hola hola hola
-hola uchiha
+<br/> aqui estuvo cristian aguilar
+<br/>Aqui estuvo Rafael
+<br/>Aqui estuvo Dafne
+<br/>hola uchiha
